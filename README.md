@@ -1,2 +1,2 @@
 - 👋 Hi, I’m @X3r0byte!
-- 📫 visit [my homepage](https://X3r0byte.github.io) to learn more :)
+- 📫 Please visit [my homepage](https://X3r0byte.github.io) to learn more :) My work is always changing, and I find it difficult to keep multiple platforms up to date!
